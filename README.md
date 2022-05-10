@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @faraaa1
+- 👀 I’m interested in math
+- 🌱 I’m currently learning python
+- 💞️ I’m looking to collaborate on subject
+- 📫 How to reach me farahridana@gmail.com
